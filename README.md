@@ -13,4 +13,4 @@
 
 ## 🏆 推荐列表
 
-- [注册使用](https://xn--4gqx1hgtfdmt.com/#/register?code=fFxbSxmC)
+- [一分机场](https://xn--4gqx1hgtfdmt.com/#/register?code=fFxbSxmC)
