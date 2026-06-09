@@ -1,4 +1,4 @@
-<img width="24" height="24" alt="c1fb2c23-41a4-4f06-b5a9-359d34108103" src="https://github.com/user-attachments/assets/e063f5a7-cafb-4fbd-9b4b-5e33aa21f427" /># airport-recommend
+<img width="24" height="24" alt="c1fb2c23-41a4-4f06-b5a9-359d34108103" src="https://github.com/user-attachments/assets/e063f5a7-cafb-4fbd-9b4b-5e33aa21f427" /> # airport-recommend
 # ✈️ 2026年最新低价机场(2元/月)推荐
 
 > **免责声明 / Disclaimer**  
@@ -13,6 +13,6 @@
 
 ## 🏆 推荐列表
 
-- [一分机场](https://xn--4gqx1hgtfdmt.com/#/register?code=fFxbSxmC)
+- [一分机场注册使用](https://xn--4gqx1hgtfdmt.com/#/register?code=fFxbSxmC)
 
 ## ❤ 如果觉得有用麻烦点个start, 谢谢啦
