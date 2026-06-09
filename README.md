@@ -15,4 +15,5 @@
 
 - [一分机场](https://xn--4gqx1hgtfdmt.com/#/register?code=fFxbSxmC)
 
-## 如果觉得有用麻烦点个start
+## <img width="24" height="24" alt="3dd799ba-e46d-4b85-9243-4f30b0caa763" src="https://github.com/user-attachments/assets/c0684958-bcb6-43a2-acf6-7e31573696db" />
+ 如果觉得有用麻烦点个start
