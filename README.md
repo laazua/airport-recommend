@@ -16,10 +16,10 @@
 - [一分机场注册使用](https://xn--4gqx1hgtfdmt.com/#/register?code=fFxbSxmC)
 
 ## 😘 套餐明细
-- [1](./1.png)
-- [2](./2.png)
+- [](1.png)
+- [](2.png)
 
 ## 🌍 丰富节点
-- [1](./3.png)
+- [](3.png)
 
 ## ❤ 如果觉得有用麻烦点个start, 谢谢啦
