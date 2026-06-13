@@ -13,7 +13,8 @@
 
 ## 🏆 推荐列表
 
-- [一分机场注册使用](https://xn--4gqx1hgtfdmt.com/#/register?code=fFxbSxmC)
+- [传送门1](https://xn--4gqx1hgtfdmt.com/#/register?code=fFxbSxmC)
+- [传送门2](https://xn--4gqx1hgtfdmt.com/#/register?code=sfLVW8s1)
 
 ## 😘 套餐明细
 - ![](./1.png)
@@ -23,3 +24,4 @@
 - ![](./3.png)
 
 ## ❤ 如果觉得有用麻烦点个start, 谢谢啦.
+
